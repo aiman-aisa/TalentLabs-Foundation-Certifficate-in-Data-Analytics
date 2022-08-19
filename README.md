@@ -1,1 +1,1 @@
-# TalentLabs-Foundation-Certifficate-in-Data-Analytics
+# TalentLabs-Foundation-Certificate-in-Data-Analytics
